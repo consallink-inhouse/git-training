@@ -1,16 +1,8 @@
 ## A チーム
 
+福岡↓
 
-## aaaaaaaaaaa
 
 
-a
-a
-a
-a
+廣石↓
 
-a
-a
-a
-a
-a
